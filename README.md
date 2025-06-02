@@ -1,6 +1,6 @@
  # 👨🏻❄ Urian Gabriel Brito Rodrigues
 
-**Analista de dados**
+** Dev Full Stack**
 
 Me chamo Urian gabriel brito rodrigues , tenho 26 anos , natural de santo andré - SP.
 trabalho atualmente na área da logística.
