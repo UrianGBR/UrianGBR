@@ -2,7 +2,7 @@
 
 ** Ciber Segurança **
 
-Me chamo Urian gabriel brito rodrigues , tenho 26 anos , natural de santo andré - SP.
+Me chamo Urian gabriel brito rodrigues , natural de santo andré - SP.
 trabalho atualmente na área da logística.
 estou cursando Ciência da computação , e buscando realizar meu sonho de trabalhar na área da tecnologia.
 apaixonado por tecnologia e buscando aprender e aperfeiçoar cada dia mais.
